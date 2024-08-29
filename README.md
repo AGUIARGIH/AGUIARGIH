@@ -7,5 +7,5 @@
 • Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
 Você pode entrar em contato comigo 📫
-00001120191683SP@AL.EDUCACAO.SP.GOV.BR
-@giih._aguiar
+•0001120191683SP@AL.EDUCACAO.SP.GOV.BR
+•@giih._aguiar
